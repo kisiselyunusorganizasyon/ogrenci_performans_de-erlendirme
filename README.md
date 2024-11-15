@@ -1,0 +1,1 @@
+# ogrenci_performans_de-erlendirme
